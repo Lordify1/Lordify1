@@ -6,7 +6,7 @@
 Linkedin - https://www.linkedin.com/in/owoeye-joshua-2a52ab207
 Whatsapp - https://wa.me/2348140507193
 Facebook - https://www.facebook.com/OwoeyeJoshuaPelumi
-- 😄 Pronouns: Senior Dev😎
+- 😄 Pronouns: Special Dev😎
 - ⚡ Fun fact:
 When coding beside me, do well to keep your headphones on, or you might end up typing the codes I'd be saying😂.
 I barely code without music on. Because of this, my neighbors mistake me for a music producer🙄.
